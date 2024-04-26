@@ -1,7 +1,7 @@
 - 👋 Hi, I’m NasNasNas
 - 👀 I’m interested in Genshin Impact
 - 🌱 I’m currently learning how to earn a lot of money
-- 💞️ I’m looking to collaborate with a persom who can do all my work
+- 💞️ I’m looking to collaborate with a person who can do all my work
 - ⚡ Fun fact: I want to concure the world
 
 <!---
